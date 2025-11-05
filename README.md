@@ -114,6 +114,3 @@ I’m always expanding my technical skills and enjoy finding efficient, practica
 
 Contact:
 📧 agendrachi92@gmail.com
-
-🌍 LinkedIn
- (Add your link once ready)
